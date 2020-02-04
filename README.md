@@ -1,3 +1,4 @@
 # Book
 reading feeling
-记录了我的读书感受和一些进步过程
+so it is a instruction.
+it write my progress and my work , of course i am a loser.
